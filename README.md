@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Gibsonist
+- 👀 I’m interested in IT, Electrical and Electronic Engineering and Programming 
+- 🌱 I’m currently studying in BMSTU, Desingn and production technology of elecronic equipment
+- 📫 How to reach me: Telegram @Gibsonist
